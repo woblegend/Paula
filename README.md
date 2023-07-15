@@ -11,4 +11,4 @@ we try to create a
 Evil Paula
 funny paula
 Gangster, mafia, kingping, sexuel, silly this will be greate for scambaiting trolling others and prank calling
-if you have idee's email me at Wob.legend@hotmail.com
+if you have idee's or its miss recording's of serioun words ( No rasic ) email me at Wob.legend@hotmail.com
