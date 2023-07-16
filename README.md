@@ -1,5 +1,5 @@
 the Creator off Paula twococks
-Shortywannabeamidget88@outlook.com
+Shortywannabeamidget88@outlook.com & Twocockspaula@gmail.com
 
 # Paula twococks
 We are still creating the soundboard
@@ -21,4 +21,4 @@ if you have idee's or its miss recording's of serious words ( No rasic ) email m
 Wob.legend@hotmail.com
 
 the Creator off Paula twococks
-Shortywannabeamidget88@outlook.com
+Shortywannabeamidget88@outlook.com & Twocockspaula@gmail.com
