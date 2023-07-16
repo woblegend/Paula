@@ -1,3 +1,6 @@
+the Creator off Paula twococks
+Shortywannabeamidget88@outlook.com
+
 # Paula twococks
 We are still creating the soundboard
 
@@ -13,4 +16,9 @@ Evil Paula
 funny paula
 Gangster, mafia, kingping, sexuel, silly 
 this will be greate for scambaiting trolling others and prank calling
-if you have idee's or its miss recording's of serioun words ( No rasic ) email me at Wob.legend@hotmail.com
+if you have idee's or its miss recording's of serious words ( No rasic ) email me at 
+
+Wob.legend@hotmail.com
+
+the Creator off Paula twococks
+Shortywannabeamidget88@outlook.com
